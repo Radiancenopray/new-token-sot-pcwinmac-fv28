@@ -1,4 +1,4 @@
-# 
+# نخبة new token sniper bot قوالب لـ Mac OS | ذكي new token sniper bot قوالب لـ PC Windows. مع التنفيذ السريع و دعم متعدد السلاسل — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
